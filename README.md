@@ -1,8 +1,11 @@
 - 👋 Hi, I’m @Patiddl04
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+
+I am a new person here🥳🫡
+
+- 👀 I’m interested in human psyche🤓🤯
+- I live in Poland🇵🇱
+- 💞️ 🐈‍⬛
+- 📫 How to reach me ... https://t.me/patusiakarol
 
 <!---
 Patiddl04/Patiddl04 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
